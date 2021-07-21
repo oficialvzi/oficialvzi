@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @oficialvzi
+- 👀 I’m interested in games and technology
+- 🌱 I’m currently a sophomore
+- 🎥 You can follow me on twitch! twitch.tv/oficialvzi
