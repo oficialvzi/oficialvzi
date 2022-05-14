@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @oficialvzi
-- 👀 I’m interested in games and technology
-- 🌱 I’m currently a sophomore
-- 🎥 You can follow me on twitch! twitch.tv/oficialvzi
+- 👋 Olá, sou @oficialvzi
+- 👀 Sou um entusiasta de tecnologia e estou aprendendo a ser dev
+- 🌱 Estou no segundo ano do ensino médio
+- 🎥 As vezes faço lives na twitch, me segue lá =) twitch.tv/oficialvzi
