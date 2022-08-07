@@ -1,4 +1,4 @@
 - 👋 Olá, sou @oficialvzi
 - 👀 Sou um entusiasta de tecnologia e estou aprendendo a ser dev
-- 🌱 Estou no segundo ano do ensino médio
+- 🌱 Estou no terceiro ano do ensino médio
 - 🎥 As vezes faço lives na twitch, me segue lá =) twitch.tv/oficialvzi
