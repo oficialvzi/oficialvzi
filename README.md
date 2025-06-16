@@ -1,4 +1,4 @@
 - 👋 Olá, sou @oficialvzi
 - 👀 Sou um entusiasta de tecnologia e estou aprendendo a ser dev
-- 🌱 Atualmente estou no 1º semestre de Engenharia de Redes pela UnB
+- 🌱 Atualmente estou no 2º semestre de Engenharia de Redes pela UnB
 - 🎥 As vezes faço lives na twitch, me segue lá =) twitch.tv/oficialvzi
