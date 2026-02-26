@@ -1,2 +1,0 @@
-- 👋 Olá, sou @oficialvzi
-- 🌱 Cursando Engenharia de Redes - UnB e Ciências da Computação - IDP.
